@@ -1,3 +1,5 @@
+https://youtu.be/OBNBe-c5ObA?si=E621K0MCdotE2gY5
+
 To bite the bullet (0:39): To do something difficult or unpleasant with bravery.
 A piece of cake (2:42): Something that is very easy.
 Kill two birds with one stone (4:24): To accomplish two goals with one action.
